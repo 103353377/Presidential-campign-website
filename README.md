@@ -1,1 +1,0 @@
-# Presidential-campign-website
